@@ -1,2 +1,2 @@
-# Geograf-a-y-Territorio
+# Geografía y Territorio
 Pontificia Universidad Católica de Quito
